@@ -1,6 +1,6 @@
 ### 👋 Hi, I’m Saundra!  
 
-### 🌱 I'm a Software Engineer with a background in non-profits. I have a love for problem solving and am looking to put my software engineering skill to work towards a new mission-driven opportunity.  
+### 🌱 I'm a Software Engineer with a background in non-profits. Problem solving and efficiency are where I shine.  
 
 ### 📫 [Message me on LinkedIn here!](https://www.linkedin.com/in/saundra-catalina)  
 
